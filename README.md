@@ -9,5 +9,5 @@ I have successfully completed a 10-week internship in Ethical Hacking, where I g
 Alongside this, I have also developed strong professional skills through certified training in networking and career development, focusing on personal branding and building meaningful professional connections. 🎉
 I am always eager to learn new technologies, improve my technical skills, and contribute to innovative projects that solve real-world challenges. 🚀
 
-#DELOITTE #TATA #FORAGE
+#DELOITTE #TATA #FORAGE #SIH #EDUSKILL #HP
 #Cybersecurity #Certification #ProfessionalGrowth #IAM #CareerDevelopment
